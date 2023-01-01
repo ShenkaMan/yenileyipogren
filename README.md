@@ -1,2 +1,0 @@
-# yenileyipogren
-Yenile öğren!
